@@ -1,5 +1,6 @@
 # ritikrk27
-How To Find A Reputed News Portal Designing Company In India
+####How To Find A Reputed News Portal Designing Company In India
+
 Trimwebsolutions India is a leading [News Portal Designing Company in India](https://traffictail.com/news-portal-development-company/). The main aspect that you should do prior to hiring the News Portal Designing Company in India is defining your news portal category clearly. For instance, what type of news portal you would like to publish online?
 
 Before you decide on a particular news portal, you need to make sure that it is suitable for your business needs. Some news portals are designed for entertainment purpose while some are meant for marketing. A news portal that can cater to all these categories can be more reliable than a news portal that is solely meant for entertainment purpose.
